@@ -1,1 +1,1 @@
-# 230912_career_description
+# 임진솔 경력기술서
